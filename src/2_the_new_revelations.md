@@ -391,199 +391,70 @@ Again this is the description of more planes; the "heads of the horses" are the 
 
 The tail with "heads, with them they do hurt" are the nuclear missiles, and you can understand that the "heads" refers to the head of the missile, whether it's self-directed or not. We gave John the most detailed description possible, and this story reflects what he had seen with his primitive eyes. Take this same story and tell it to an Amazonian Indian, then ask him to write it down in his own words, and you will get approximately the same type of recollection, more so, if you ask 10 of his fellow tribe members to transcribe the story, while the first man is not present.
 
-And when the seven thunders had uttered their voices, I was
+And when the seven thunders had uttered their voices, I was  about to write: and I heard a voice from heaven saying unto me, 'Seal up those things which the seven thunders uttered, and write them not.' *Revelation 10: 4.*
 
-about to write: and I heard a voice from heaven saying unto me,
+At this point we clearly told John that there was no "God" and that we were men like him, and also we explained that he should keep this as a secret and not write it, so as not to create a greater confusion among the people who still needed a crutch to lean on, until the day when Humanity had reached a sufficient level of technology when everyone could understand what we had spoken of.
 
-'Seal up those things which the seven thunders uttered, and write them
-not.' *Revelation 10: 4.*
+But in the days of the sounding of the seventh angel, when he is about to sound, the mystery of God would be finished, as He declared to His servants the prophets.12 *Revelation 10: 7.*
 
-At this point we clearly told John that there was no "God" and that we
-were men like him, and also we explained that he should keep this as a
-secret and not write it, so as not to create a greater confusion among
-the people who still needed a crutch to lean on, until the day when
-Humanity had reached a sufficient level of technology when everyone
-could understand what we had spoken of.
+We clearly explained to him that when the time would come, men would understand that there is no "God" and by the same token would also understand that we were their creators.
 
-But in the days of the sounding of the seventh angel, when he is about
-to sound, the mystery of God would be finished, as He
+...for the devil is come down unto you, having great wrath, because he knoweth that he hath but a short time. *Revelation 12: 12.*
 
-declared to His servants the prophets.12 *Revelation 10: 7.*
+This final test of Humanity, that is, the choice between self-destruction or the passage into the Golden Age, is the last  opportunity for Satan to prove that he was right in saying that humanity was bad.
 
-We clearly explained to him that when the time would come, men would
-understand that there is no "God" and by the same token would also
-understand that we were their creators.
+If Humanity brilliantly overcomes this last ordeal and succeeds in obtaining total disarmament on the planet, then men will have proven themselves worthy of receiving our inheritance, since they will have shown they are truly non-violent. The "beast", as described further on in the text, is simply the use of nuclear energy for murderous means: 
 
-\...for the devil is come down unto you, having great wrath,
+Here is wisdom. Let him that hath understanding count the  number of the beast: for it is the number of a man; and his  number is Six hundred threescore and six. *Revelation 13: 18.*
 
-because he knoweth that he hath but a short time.
+In fact, 666 is the number of human generations which will have existed on Earth since the creation of the first men in the original laboratories. The very first humans were created some 13,000 years ago, and a human generation is estimated at an average of 20 years, so if one multiplies 666 by 20, it equals 13,320 years.
 
-*Revelation 12: 12.*
+The generation born at the beginning of the Age of Apocalypse in 1945 of the Christian era, was in fact the 666th since the creation of the first man in a laboratory by the Elohim. This generation coincides precisely with the first use of nuclear energy for destructive purposes at Hiroshima, on August 6th, 1945.
 
-This final test of Humanity, that is, the choice between
-self-destruction or the passage into the Golden Age, is the last
+Once again, interpretation was not required in order to  understand. One had only to read what had been written. 666 was effectively the "number of Man", the number of men who descended from the creation, that is to say, the number of generations.
 
-opportunity for Satan to prove that he was right in saying that humanity
-was bad.
+And there were voices, and thunders, and lightnings; and there was a great earthquake, such as was not since men were upon the earth, so mighty an earthquake, and so great. *Revelation 16: 18.*
 
-If Humanity brilliantly overcomes this last ordeal and succeeds in
-obtaining total disarmament on the planet, then men will have proven
-themselves worthy of receiving our inheritance, since they will have
-shown they are truly non-violent. The "beast", as described further on
-in the text, is simply the use of nuclear energy for murderous means:
+The after-shocks from the atomic explosions are tremendous, and they are increased if they start a chain reaction.
 
-303
+And every island fled away, and the mountains were not found. *Revelation 16: 20.*
 
-[]{#index_split_006.html#p328}INTELLIGENT DESIGN: MESSAGE FROM THE
-DESIGNERS
-
-Here is wisdom. Let him that hath understanding count the
-
-number of the beast: for it is the number of a man; and his
-
-number is Six hundred threescore and six. *Revelation 13: 18.*
-
-In fact, 666 is the number of human generations which will have existed
-on Earth since the creation of the first men in the original
-laboratories. The very first humans were created some 13,000 years ago,
-and a human generation is estimated at an average of 20 years, so if one
-multiplies 666 by 20, it equals 13,320 years.
-
-The generation born at the beginning of the Age of Apocalypse in 1945 of
-the Christian era, was in fact the 666th since the creation of the first
-man in a laboratory by the Elohim. This generation coincides precisely
-with the first use of nuclear energy for destructive purposes at
-Hiroshima, on August 6th, 1945.
-
-Once again, interpretation was not required in order to
-
-understand. One had only to read what had been written. 666 was
-effectively the "number of Man", the number of men who descended from
-the creation, that is to say, the number of generations.
-
-And there were voices, and thunders, and lightnings; and there was a
-great earthquake, such as was not since men were upon the earth, so
-mighty an earthquake, and so great. *Revelation 16: 18.*
-
-The after-shocks from the atomic explosions are tremendous, and they are
-increased if they start a chain reaction.
-
-And every island fled away, and the mountains were not found.
-
-*Revelation 16: 20.*
-
-This monstrous explosion due to a chain reaction will brutally divide
-the continents, engulfing the islands and sweeping the mountains like a
-wisp of straw.
-
-304
-
-[]{#index_split_006.html#p329}THE NEW REVELATIONS - MESSAGE FROM YAHWEH
-TO THE MEN OF THE EARTH
+This monstrous explosion due to a chain reaction will brutally divide the continents, engulfing the islands and sweeping the mountains like a wisp of straw. 
 
 And there fell upon men a great hail out of heaven, every stone about
 the weight of a talent. *Revelation 16: 21.*
 
-In those parts of the Earth untouched by the bombs, rocks are falling
-from the sky, thousands of kilometers away from where the bombs had
-fallen.
+In those parts of the Earth untouched by the bombs, rocks are falling from the sky, thousands of kilometers away from where the bombs had fallen.
 
-And I saw a new heaven and a new earth: for the first heaven and the
-first earth were passed away; and there was no more sea.
+And I saw a new heaven and a new earth: for the first heaven and the first earth were passed away; and there was no more sea. *Revelation 21: 1.*
 
-*Revelation 21: 1.*
+John was able to see what one could see from a rocket moving away from the Earth. It seemed as if it was the Earth that was retreating, rather than the craft itself moving away. Then the spacecraft travels through a starlit sky unfamiliar to a man of the Earth, "a new Heaven". Then the spaceship reaches another planet, "a new Earth".
 
-John was able to see what one could see from a rocket moving away from
-the Earth. It seemed as if it was the Earth that was retreating, rather
-than the craft itself moving away. Then the spacecraft travels through a
-starlit sky unfamiliar to a man of the Earth, "a new Heaven". Then the
-spaceship reaches another planet, "a new Earth".
+And I John saw the holy city, new Jerusalem, coming down from Yahweh out of heaven, prepared as a bride adorned for her husband. *Revelation 21: 2.*
 
-And I John saw the holy city, new Jerusalem, coming down from Yahweh out
-of heaven, prepared as a bride adorned for her
+Looking from the spacecraft, the primitive has the feeling that the city towards which the spacecraft is going, is "coming down out of Heaven", while it is evidently the spacecraft that is approaching.
 
-husband. *Revelation 21: 2.*
+And I heard a great voice out of heaven saying, 'Behold, the tabernacle of Yahweh is with men, and he will dwell with them, and they shall be his people, and Yahweh himself shall be with them, and be their Elohim.
 
-Looking from the spacecraft, the primitive has the feeling that the city
-towards which the spacecraft is going, is "coming down out of Heaven",
-while it is evidently the spacecraft that is approaching.
+And Yahweh shall wipe away all tears from their eyes; and there shall be no more death, neither sorrow, nor crying, neither shall there be any more pain: for the former things are passed away.' *Revelation 21: 3-4.*
 
-And I heard a great voice out of heaven saying, 'Behold, the tabernacle
-of Yahweh is with men, and he will dwell with them, and they shall be
-his people, and Yahweh himself shall be with them, and be their Elohim.
+This is the description of the planet of the Eternals, where all the people that we will save from the final cataclysm will live with us while waiting to be re-implanted on Earth when it will be habitable again, in order to re-create a peaceful civilization.
 
-And Yahweh shall wipe away all tears from their eyes; and there shall be
-no more death, neither sorrow, nor crying, neither shall there be any
-more pain: for the former things are passed away.'
+This is the outcome with which Humanity is faced, if it does not reach a level of wisdom as high as its level of technology.
 
-*Revelation 21: 3-4.*
+All this was seen by a primitive, because John was a primitive compared to us, as was Moses, as was Jesus as well, as were all the prophets compared to our level, before we gave them a sufficient initiation so that they could foresee what was a certain mastery of matter. Your most advanced scientists are also primitive compared to what we can achieve today, the same as the Indians of the Amazon are, compared to the scientists at Cape Canaveral.
 
-305
+This is, unfortunately, what awaits Humanity, with a 99 per cent probability of occurring.
 
-[]{#index_split_006.html#p330}INTELLIGENT DESIGN: MESSAGE FROM THE
-DESIGNERS
+So that all of you who recognize us as your creators and who recognize Rael as our last messenger on Earth, all of you must wrestle to ensure that Humanity reaches out to this one little chance of survival, by revealing our messages to the whole of Mankind. If this is what you are doing, you can live in peace, and all the while try to expand and fulfill yourselves even more, for if you are among the just, who are doing everything within their power so that the truth and non-violence may finally triumph, you can rest assured that we will save you from the final cataclysm, if it should ever happen. Strive for love, strive for fraternity, strive for intelligence, but do not despair if you see that the great majority of men remain violent, aggressive and stupid. Whichever way you look at it, your efforts will be rewarded.
 
-This is the description of the planet of the Eternals, where all the
-people that we will save from the final cataclysm will live with us
-while waiting to be re-implanted on Earth when it will be habitable
-again, in order to re-create a peaceful civilization.
+Either Humanity will develop an interplanetary consciousness, and the whole of Mankind will enter the Golden Age, or everything will explode, and you will be those who we will save to rebuild everything.
 
-This is the outcome with which Humanity is faced, if it does not reach a
-level of wisdom as high as its level of technology.
-
-All this was seen by a primitive, because John was a primitive compared
-to us, as was Moses, as was Jesus as well, as were all the prophets
-compared to our level, before we gave them a sufficient initiation so
-that they could foresee what was a certain mastery of matter. Your most
-advanced scientists are also primitive compared to what we can achieve
-today, the same as the Indians of the Amazon are, compared to the
-scientists at Cape Canaveral.
-
-This is, unfortunately, what awaits Humanity, with a 99 per cent
-probability of occurring.
-
-So that all of you who recognize us as your creators and who recognize
-Rael as our last messenger on Earth, all of you must wrestle to ensure
-that Humanity reaches out to this one little chance of survival, by
-revealing our messages to the whole of Mankind. If this is what you are
-doing, you can live in peace, and all the while try to expand and
-fulfill yourselves even more, for if you are among the just, who are
-doing everything within their power so that the truth and non-violence
-may finally triumph, you can rest assured that we will save you from the
-final cataclysm, if it should ever happen. Strive for love, strive for
-fraternity, strive for intelligence, but do not despair if you see that
-the great majority of men remain violent, aggressive and stupid.
-Whichever way you look at it, your efforts will be rewarded.
-
-Either Humanity will develop an interplanetary consciousness, and the
-whole of Mankind will enter the Golden Age, or everything will explode,
-and you will be those who we will save to rebuild everything.
-
-I, Yahweh, the alpha and the omega, he who was the first one on Earth
-and also he who will be the last, I am sending this message to all
-humans of the Earth through the words of my prophet, Rael, to all those
-humans whom we have created, and whom we have tried to 306
-
-[]{#index_split_006.html#p331}THE NEW REVELATIONS - MESSAGE FROM YAHWEH
-TO THE MEN OF THE EARTH
-
-lead towards the Golden Age, and who we love as if they were our own
+I, Yahweh, the alpha and the omega, he who was the first one on Earth and also he who will be the last, I am sending this message to all humans of the Earth through the words of my prophet, Rael, to all those humans whom we have created, and whom we have tried to lead towards the Golden Age, and who we love as if they were our own
 children.
 
-Peace on Earth to all men of good-will and to all those who have the
-will to be happy.
+Peace on Earth to all men of good-will and to all those who have the will to be happy.
 
-Our inheritance is ready, let us hope that the child will not die at
-birth.
+Our inheritance is ready, let us hope that the child will not die at birth.
 
 It's your move!
-
-307
-
-[]{#index_split_006.html#p332}**3**
-
-**AN ATHEIST RELIGION**
-
-**Angels Without Wings**
-
-
